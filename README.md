@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edwardkim1
-- 👀 I’m interested in AI generated art, post-modernism, and the digital gallery experience- 
+- 👀 I’m interested in AI generated art, post-modernism, and the digital image gallery experience
 - 📫 How to reach me: edward71299@gmail.com
 
 <!---
